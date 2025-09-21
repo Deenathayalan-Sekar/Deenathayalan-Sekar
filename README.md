@@ -52,8 +52,8 @@ Passionate about crafting **engaging user experiences** and building **impactful
 
 ## 📫 Let’s Connect!  
 
-🌍 **GitHub:** [@Tanzo-lab](https://github.com/Deenathayalan-Sekar)  
-💼 **LinkedIn:** [Deenathayalan](https://www.linkedin.com/in/deena45in)  
+🌍 **GitHub:** [@Deenathayalan-Sekar](https://github.com/Deenathayalan-Sekar)  
+💼 **LinkedIn:** [Deenathayalan](https://www.linkedin.com/in/deena45)  
 📧 **Email:** mrdeena98@gmail.com  
 
 ---
